@@ -1,4 +1,4 @@
-## Elias Vandenberg \\
+## Elias Vandenberg 
 
 he/him
 
